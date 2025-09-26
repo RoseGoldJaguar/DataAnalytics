@@ -1,4 +1,4 @@
-ryn Douglas
+Kathryn Douglas
 COMP3800
 917546865
 
